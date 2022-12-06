@@ -1,9 +1,14 @@
 SOBRE MIM
-- Hi, I’m @bruna-domingues
-- 21y
-- Relações Internacionais - UNESP Franca 
-- Franca, SP <--> São José dos Campos, SP
-- Contato: bruna.domingues01@unesp.br
+
+👋🏻 Hi, I’m @bruna-domingues 
+
+🎂 21y
+
+📓 Relações Internacionais - UNESP Franca 
+ 
+🚗 Franca, SP <--> São José dos Campos, SP
+
+📧 Contato: bruna.domingues01@unesp.br
 
 SOCIAL
 
